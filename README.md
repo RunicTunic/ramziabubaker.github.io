@@ -1,3 +1,3 @@
-# ramziabubaker.github.io
+# ramziabubaker.tech
 
 Coming soon...
